@@ -3,4 +3,4 @@
 
 ### Julian Andres Quintero - jquinteroco@unal.edu.co
 #### Linekdin 
-####https://www.linkedin.com/in/juli%C3%A1n-andr%C3%A9s-quintero-contreras-6b2006199/
+https://www.linkedin.com/in/juli%C3%A1n-andr%C3%A9s-quintero-contreras-6b2006199/
